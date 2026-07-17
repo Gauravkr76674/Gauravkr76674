@@ -76,7 +76,7 @@
 ## 📫 Connect with Me
 
 * GitHub: https://github.com/Gauravkr76674
-* LinkedIn: *(Add your LinkedIn profile here)*
+* LinkedIn: https://www.linkedin.com/in/gaurav-kumar-8575b532a/
 
 ---
 
